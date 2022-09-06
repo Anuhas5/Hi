@@ -1,22 +1,22 @@
 // ⧈⧈⧈⧈⧈⧈⧈⧈⧈⧈⧈⧈⧈⧈⧈⧈⧈⧈⧈⧈⧈⧈⧈
-//▮ZIM BOT INC 2022 ®️ALL RIGHTS RESERVED
+//▮ANUWA BOT INC 2022 ®️ALL RIGHTS RESERVED
 //▮
 //▮FORK AND DON'T FORGET TO GIVE A STAR
 //▮
-//▮ZimBotInc SOFTWARE IS UNDER UZ COPYRIGHT
+//▮AnuwaBotInc SOFTWARE IS UNDER UZ COPYRIGHT
 //▮
-//▮REPORT ABUSE OF ZimBotInc SOFTWARE EMAIL US
-//▮reinhardtuna@mail.uk
-//▮WHATSAPP US : +44 7441 437150
-//▮YOUTUBE CHANNELL: https://youtube.com/c/DRIPSOFC
+//▮REPORT ABUSE OF AnuwaBotInc SOFTWARE EMAIL US
+//▮L.M.S.Anuhas@gmail.com
+//▮WHATSAPP US : +94 470 6922
+//▮WHATSAPP GROUP: https://chat.whatsapp.com/CY0jaJe5kWqCzUeLvjQrh3
 //▮
 //╰▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀
 //
 //┏━━━━━━━━━━━━━━━━━━━━━━━━━
-//┃ZimBotInc SOFTWARE INCLUDES 
+//┃AnuwaBotInc SOFTWARE INCLUDES 
 //┃SOME ENCRYPTED FILES
 //┃
-//┃THANKS FOR CHOOSING ZIMBOT
+//┃THANKS FOR CHOOSING ANUWABOT
 //┃THANKS TO DIKA ARDNT
 //┗━━━━━━━━━━━━━━━━━━━━━━━━━
 //
